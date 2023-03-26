@@ -6,7 +6,7 @@ Demo Video Link
 https://drive.google.com/file/d/1M3AghzekgNhHjTiEWRRGOu8X6s4aP1pQ/view?usp=sharing
 
 Presentation link:
-
+https://docs.google.com/presentation/d/157LuayeMYMMBt6ubXgGBqvEtAMkUPStN/edit?usp=sharing&ouid=117890298252694753746&rtpof=true&sd=true
 
 Table of Contents:
 
